@@ -1,3 +1,0 @@
-# UltimateVPS
-
-coming soon 👀
